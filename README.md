@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @samuellks9
 - 👀 I’m interested in ser un administrador de eventos y participante 
-- 🌱 I’m currently learning diseño de juegos y participo
+- 🌱 I’m currently learning diseño de juegos y participo en actividades de streeam
 - 💞️ I’m looking to collaborate on hacer servidores con diferentes tipo de mods y participar
   
 - 📫 How to reach me mandenme un mensaje al wasshap pais colombia
